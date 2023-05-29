@@ -11,4 +11,4 @@ Meu nome é **Lucas**
 
 Meu EMAIL: Lucas.kuakowski@escola.pr.gov.br
 
-![](https://media.tenor.com/bPcp0d77mdIAAAAC/kimi-raikkonen.gif)
+![](https://media.tenor.com/s_jN0glBToYAAAAM/cristiano-ronaldo-man-united.gif)
